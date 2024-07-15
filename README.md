@@ -16,4 +16,3 @@ Here are some ideas to get you started:
 -->
 
 
-![](https://wakatime.com/share/@Chaos_xBug/5898700b-c662-446b-a913-df121f98c794.png)
